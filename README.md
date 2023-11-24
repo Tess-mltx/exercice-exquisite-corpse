@@ -14,3 +14,7 @@ Car dans nos moment de silence,nos corps parle pour nous :
 - un regard lancé discretement
 - une main qui s'avance et s'arete en chemin
 Le silence laisse place à bien plus de choses que les mots.
+
+## Pour oublier ce silence, un petit poème..
+
+    « Faire partie de l'Élite se mérite.  Prouve ton courage, quel que soit ton âge.  Oublie la douleur, montre ta valeur. »
