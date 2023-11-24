@@ -25,3 +25,7 @@ Après quelques lignes gratter et un poème bien envoyé, rien plus rien plus d'
 
 ## Qu'est ce que le silence finalement 🧐
 > D'un point de vue plus profond, le silence représente souvent bien plus que l'absence de bruit. Il peut symboliser la tranquillité, la réflexion, voire la contemplation. Le silence offre un espace propice à l'introspection, à l'écoute de soi-même ou des autres, et peut être source de calme et de sérénité.
+
+## la fuite face à la profondeur du silence
+> Moi le silence ça m'engoisse, ça laisse trop de place à combler, trop d'espace inexploité.
+Fuyons le silence, remplissont tout ces trous par plein de son un peu fou.
