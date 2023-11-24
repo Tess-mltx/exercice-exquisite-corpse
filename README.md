@@ -21,3 +21,6 @@ Faire partie de l'Élite se mérite.  Prouve ton courage, quel que soit ton âge
 
 ## Le calme avant la tempête.
 Après quelques lignes gratter et un poème bien envoyé, ***rien*** plus ***rien*** plus d'inspiration, d'envie, d'idées, une page blanche quoi, ça arrive à tout le monde mais la s'en était trop.
+
+## Mais finalement qu'est le silence 🧐
+> D'un point de vue plus profond, le silence représente souvent bien plus que l'absence de bruit. Il peut symboliser la tranquillité, la réflexion, voire la contemplation. Le silence offre un espace propice à l'introspection, à l'écoute de soi-même ou des autres, et peut être source de calme et de sérénité.
