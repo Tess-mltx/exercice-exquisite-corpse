@@ -16,5 +16,8 @@ Car dans nos moment de silence,nos corps parle pour nous :
 Le silence laisse place à bien plus de choses que les mots.
 
 ## Pour oublier ce silence, un petit poème..
+Faire partie de l'Élite se mérite.  Prouve ton courage, quel que soit ton âge.  Oublie la douleur, montre ta valeur.
 
-    « Faire partie de l'Élite se mérite.  Prouve ton courage, quel que soit ton âge.  Oublie la douleur, montre ta valeur. »
+
+## Le calme avant la tempête.
+Après quelques lignes gratter et un poème bien envoyé, ***rien*** plus ***rien*** plus d'inspiration, d'envie, d'idées, une page blanche quoi, ça arrive à tout le monde mais la s'en était trop.
