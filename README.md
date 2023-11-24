@@ -14,3 +14,5 @@ Car dans nos moment de silence,nos corps parle pour nous :
 - un regard lancé discretement
 - une main qui s'avance et s'arete en chemin
 Le silence laisse place à bien plus de choses que les mots.
+## Le calme avant la tempête
+Après quelques lignes gratter et un poème bien envoyé, rien plus rien plus d'inspiration, d'envie, d'idées, une page blanche quoi, ça arrive à tout le monde mais la s'en était trop.
